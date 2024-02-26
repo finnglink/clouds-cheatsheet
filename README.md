@@ -13,7 +13,7 @@ If you have any requests or caught an error, please open an Issue.
 
 # The End
 Check out my music on [YouTube](https://www.youtube.com/finnglink) or [Instagram](https://www.instagram.com/glnnk_music).
-Cou can [Buy me a coffee](https://www.paypal.com/paypalme/finnglink) if you've found my work helpful :)
+You can [Buy me a coffee](https://www.paypal.com/paypalme/finnglink) if you've found my work helpful :)
 
 
 
